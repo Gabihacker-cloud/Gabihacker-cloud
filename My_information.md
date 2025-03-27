@@ -1,0 +1,5 @@
+- 👋 Hello, my name is Gabriel. They call me Gabi, that's my pronoun.
+- 👀 I’m interested in download interesting applications and files.
+- 🌱 I’m currently learning programming a lot.
+- 😄 Pronouns:Gabi
+- ⚡ Fun fact:I am very intelligent and I speak many languages.
